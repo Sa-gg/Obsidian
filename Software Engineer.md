@@ -1,1 +1,1 @@
-ikaw ang pipiliin
+umaasa
